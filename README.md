@@ -1,1 +1,1 @@
-# ClaseconMica "jaodkalbdehjscbvyabduwvcuxja"
+# ClaseconMica "jaodkalbdehjscbvyduwvcuxja"
